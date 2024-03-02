@@ -6,7 +6,6 @@
 - 🤔 I’m looking for help with content creation
 - 💬 Ask me about anything (I will try to answer it :)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am currently struggling with my Github presentation 🤣
 
 ### Languages and Tools
 
